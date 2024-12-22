@@ -1,1 +1,0 @@
-# final_assignment_Chemistry_2024210119_Kimjunseo
